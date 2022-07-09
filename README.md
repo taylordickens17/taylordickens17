@@ -10,6 +10,6 @@
 
 ---
 
-- :woman_technologist: [LinkedIn](https://www.linkedin.com/in/taylordickens55)
+- :woman_technologist: [LinkedIn](https://www.linkedin.com/in/taylordickens17)
 
 - :new_moon_with_face: [Portfolio](https://taylordickensportfolio1-d8871.web.app)
