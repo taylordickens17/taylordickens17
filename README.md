@@ -10,3 +10,4 @@
 
 ---
 
+- :link: [LinkedIn Profile](linkedin.com/in/taylordickens55)
