@@ -10,4 +10,4 @@
 
 ---
 
-- :link: [LinkedIn Profile](linkedin.com/in/taylordickens55)
+- :link: [LinkedIn Profile](https://www.linkedin.com/in/taylordickens55)
